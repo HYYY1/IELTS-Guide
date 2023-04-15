@@ -1,0 +1,359 @@
+## 发音
+
+要点：后置发音+双元音清晰
+
+与美音区别：
+
+- a  嘴稍张大但不多      bad glad hat cat
+- r   不卷舌、自然放平  girl bird work 
+- h  气息喷出、有气势 Hi Hello Hers
+
+掌握节奏：banana\graduate\oh my god\courage 
+
+想象两边脸被人划伤了，不要动太多两边的肌肉
+
+## 口语准备
+
+#### 单词
+
+**which**
+
+He can imitate tones and intonations of spoken English, **which I think is pretty** awesome.(感受)
+
+I guess he has to speak that foreign language with classmates in the classroom and discuss with foreign professors in English during the break, **which can be an excellent way for** him to speak very good English. (升华)
+
+He has been studying English for more than 10 years, **which has laid a solid foundation for him** (总结).
+
+In his spare time, he goes to the library to study English grammar and analyze grammatical structure of English sentences, **which enables him to have deeper understanding of this language than other students do**(对比).
+
+His pronunciation is pretty good, **which is similar to** the accent of native speakers(类比).
+
+**that**
+
+I’m not that good at it.
+
+I wouldn't say it's that popular.
+
+There are not that many job opportunities.
+
+**kind of / sort of**
+
+I was kind of petrified to talk in front of the class.
+
+It kind of stands out in my memory over other times.
+
+It kind of helps me take mind off things.
+
+**like**
+
+Not that often, probably only something like three or four times a year.
+
+There are lots of outdoor activities like biking, hiking and walking.
+
+It was just, kind of like, not so crowded.
+
+**used to**
+
+I used to walk around the living room.
+
+I used to eat meat, but now I'm a vegetarian.
+
+**quite a lot**
+
+He crops up in the news quite a lot.
+
+#### **连接句**
+
+- Well, you see the thing is that three years ago, at that time, 
+- by that I mean...
+- apart from that
+- Oh, by the way
+- It's such a good opportunity for me to do ...
+- it's not uncommon/surprising that...
+- it's of great importance for sb to do
+- I just can't help but to do sth
+- It's a waste of time of doing sth
+- I have no choice but to do sth
+- It would be great if I could
+- It would be wrong to argue that
+- I first heard about...when...
+- I notice that...
+- I was amazed at...
+- When I was younger, I remember that...
+- I don't really know much about...
+- have difficulty in
+- There are some actions that can be taken to deal with...
+- A potential solution lies in doing sth
+- One way of dealing with this is to do sth
+- I couldn't really say for sure, but I suppose that...
+- I don't really know much about...
+- It's better to...
+- ...definitely has an important role to play in...
+- Without... I find it difficult to...
+- The main difference is that sb prefer to do sth, while sb would choose to 
+- This is because
+- This is caused by
+- It's where people choose to do outdoor activities every day.
+- whenever I have free time
+- at this time of year
+- At some point in the future
+- I'd say that people should be able to listen to others, if they want to be good communciatior. 
+
+#### P3准备
+
+1. 固定说话逻辑
+
+- 问到未来的发展趋势 1.被取代 降低成本 2.互联网化 与生活息息相关
+- 问到政府投资xx项目 1.xx项目需要很多成本但是收益不大2.不如放在教育和医疗上
+- 怎么做可以...？1.这个问题的难点 2.可能的解决方式的好处和优势
+
+2. 每道题 准备1-2单词or短语，考试要用到提前准备过的内容，不要提前创造
+3. 换词
+4. 问为什么？方法一 ：好、坏、社会趋势 方法二：如果+例子+反例
+
+#### P1准备
+
+4-5 minutes、10 or 11 questions、3 topic areas: often seem childish、easy
+
+- try to show fluency
+- don't stop and think
+- don't show off your best vocabulary or grammar
+- it's an easy warm-up 
+- Answer the question then give a reason, use full sentences and stop with confidence.
+- 加分句型、固定逻辑、做到扣题
+
+
+
+#### P2准备
+
+1. theme+examples
+
+- 什么是不变的？固定说话逻辑，以语法为基准加词汇（素材）
+- 共性 五要素(时间、地点、人物、事件、感受) + 动作、细节、物品、内容(不变) 
+- 特性 相关句型/短语(变)
+- 考察撞题目的能力+improvise灵活组合的能力
+- prepare for common topic areas
+- vocabulary and ideas are the key
+- 6 main topic areas: person/place/object/event/activity/your favourites
+- You will need to adapt your ideas and improvise in the test.
+- practise,record,improve
+
+#### Tip
+
+- short and simple answer, answer as soon as possible in part1
+- natural language, not complex language, explain in detail
+- direct、practice->natural、body language、show off(e.g. I can still remember that...)
+- intonation
+
+
+
+#### Question for p1
+
+- 常规回答要滚瓜烂熟、短句要地道
+- 动词放在非谓语位置 I get up early feeling sleepy / I feel so tired when I (to) get up early
+- 非动词放在谓语位置 I was, is, and will be with you.
+- 描述一句话
+
+**You know the other day. I was with my friend in a coffee** talking to each other, having drinks and scrolling out phones, **that's when I found** this crazy things online, **and I was like**, oh my god, is that real?  well that is really crazy, that is beyond my understanding. **So I decided to find out more it and then it turns out that** this news is about a ... **So me and my friend we ended up** ... for entire afternoon.
+
+- 从句，按照倒叙，从重点开始讲
+
+**e.g. Share an experience of a nice dinner**
+
+- I invited my friend to dinner,I mean, I treat my friend a nice dinner with money that I got from a competition that I took part in five years ago. Because I was so happy and I just wanted to celebrate it with my best friend. The restaurant over looks a river, if you look in the distance, you can see roads, parks and trees.
+
+**Do you like the area that you live in? Where do you live?**
+
+- I live in X, which is a really nice suburb - not too expensive, and there's a nice park. (地道)
+
+**Do you make plans everday?**
+
+- One thing I can do to make plans is to set manageable goals every single day - be realistic and don't push myself too far. I particularly focus on low calorie diets or weight loss.
+
+**Why did you choose that subject?**
+
+- I choose computer science I thought it was a userful major which would stand me in good stead after I graduate.
+
+**Is it interesting?**
+
+- I've been learning science for a few years, and I can say that the more I know, the more I don't know. Every day, there's something new to learn.
+
+**What subject are you studying?**
+
+- I'm majoring in computer science.(地道)其他还有 e.g make purchases、take the time to
+
+**Do you prefer to study in the morning or in the afternoon?**
+
+- I find it easier to study in the morning, cuz my mind is sharper in that time, I'm not really into afternoon study, if I read books in the afternoon, I won't be able to learn. (比较级，喜欢，条件状语)
+
+**Are you looking forward to working?**
+
+- I am not always inclined to go to work, because it means getting up early, leaving my house and walking to the company.
+
+**Do you like your subject?**
+
+- I like it quite a lot. It is a subject to which I have devoted a lot of attention, a lot of time, a lot of energy.
+
+**Do you miss being a student?**
+
+- Surely, I can still remember that when I was in primary school, I had a PE lesson in which I played football with my fellow students.
+
+**What's your favorite season?**
+
+- **Although it is not something I particularly crazy about**, **I'd have to say** one of my favorite season in summer,**coz** it would be great to be bale to hang out with my friends by soaking up the sun at a beach or simply having dinner together, **which I think is pretty** relaxing.
+
+**Wha's your favorite music?**
+
+- **I'm not a big music fan**, **having said that though,(话虽如此)** one of my favorite music is soft music,**coz** it has soothing effect on my nerves, **which I think is pretty** peaceful.
+
+**Would you like to learn another foreign language?**
+
+- Yes, **I would quite like to**, **the main reason being that if I did, I would be able to** communciate with more people. 
+
+**Is there anything you would like to change about your home?**
+
+- **If I had the opportunity, I would** replace all the old carpets with more modern ones.
+
+**If you could make one change to your daily routine, what would it be?**
+
+- **If I could** make one change to my daily routine, **I would spend more time** building up my body.
+
+**What is the plan for your next holiday?** (问假期，别问，问就是很忙)
+
+- I am always up to my neck in study, which gives me less any time to do other things.
+
+**核心why法,最深层的因素**
+
+| 核心     | 回答                                                         |
+| :------- | ------------------------------------------------------------ |
+| 刺激     | **It's a good way of experiencing things you might not otherwise get the chance to experience, like**... **one of the beauties of** doing sth **is that you never quite know what's gonna happen or how the results gonna turn out.** |
+| 痛苦     | Going from a night owl to an early bird **was a nightmare**, **because I had no choice but to** hit the sack early/take the time to do sth I'm reluctant. **So it really drove me crazy, especially** trying to hit the snooze button**, which I found really challenging.** |
+| 娱乐     | **If we didn't have them, life would be extremely monotonous. I mean we would just be working, eating and sleeping, with nothing in between. So having** leisure activities **is a good way to break up the day, and it also helps us relax and take mind off things.** |
+| 浪费时间 | **It's too much effort, I find it a bit of hassle** having to carry an sth around with me everywhere I go, **so I can never usually be bothered.** |
+| 放松     | **If I am feeling a bit down,** sth **puts me in a nice mood, it makes me feel happy, and I get such a strong feeling of relief when I** do sth **every day. I have to say it does has a soothing effect on my nervous tension.** |
+| 自恋     | I enjoying lying in my sofa, taking selfie or being photographed by my friends, I guess you could say I am a little vain. |
+| 坚持     | **A small change has a compunding effect, that samll advantage just you know atrracts more success and over time that starts to compound. Every little helps.** |
+| 信任     | Smilling **will bring you respect, trust and kindness from others, which are beneficial for you in the long run.** |
+
+**核心why+身体部位+时间地点人物感受**
+
+**e.g Do you like travelling?**
+
+- Yes I like travelling quite a lot, It happened about a month ago (时间), I went on holiday with few friends to Thailand(地点), by the way, I like travelling with my friends, especially peter, he has a greate sense of humor(人物), I saw there were lots of people(看见), Well, I was sequeezed like a Sardine(身体), so we had no choice but to wait for a long time, you know, so many people but the food was great there(嘴巴), I was absoultely stuffed(肚子) and I was able to listen to the sea waves lapping over the shore(耳朵) and then walked down the street(脚), set on the a bench (屁股) to smell the flowers in the rose garden(鼻子), it was a great feeling (感受).
+
+**e.g. Do you like reading?**
+
+- **Yes, I like reading quite a lot, I can't go a day without** reading (时间), **there is a library within walking distance of my dormitory so I often go there**（地点). **I find reading really fascinates me, and I think it would stand me in good stead after graduate(感受), so I spend most of my time** sitting on the chair in the library（身体部位）.
+
+**e.g. Do you like handwritting.**
+
+- **I don't like handwritting that much,because I find a bit of hassle** holding a pen in my hands. **I mean, it always get** my hand **dirty. It's too much effort, so I can never usually be bother.**
+
+**e.g. What's your favoriter animal.**
+
+- **Although I am not an animal lover, I have to say cats are definitely my favorite.** They are so adorable that I just want to cuddle and caress. **To be a bit more specific**, **the feeling of** cats moving over my body **creates a massage-like sensation.**
+
+**e.g. which do you prefer, fashionable shoes or comfortable shoes?**
+
+- I normally prefer shoes that are comfortable and fit my feet, the main reason being that everything that is too tight is going to fit terribly. 
+
+**e.g. What type of headphones do you use?**
+
+- Headphones **that I like to use are those which can** seal around my ears completely and provide great noise isolation, like wireless earbuds and noise-cancelling headphones **for example** 
+
+**e.g. How was your area changed recently/ compared to the time when you were a child?**
+
+- The traffic is becoming an increasing problem. It's been especially noticeable with the increase in heavy traffic while they've been building the new hospital.
+- The city is almost unrecognizable compared to 20 years ago. It has expanded so much, both physically and economically. If I think back when I was a child, there were not that many facilities. But now it has developed better amenities, such as a fitenss center, a walking trail, a pleasant park and many groceries; things are so different now.
+
+**e.g. Do chinese like barbecue?**
+
+- **If you go out onto any street in China, the chances you will see** some food stalls. **I guess the reason for this is that It's a bit more enjoyable** eating mouth-watering lamb skewer、kebab and drinking beer, while chatting with your friends.
+
+**e.g. Have you ever lost way?**
+
+- **If my memory serves me correctly, I suppose it must have been when I was about 15 or 16.** I went jogging pretty much every day, **one day when** I was running in the street, I couldn't be able to find the right path, coz my phone was out of juice.
+
+**e.g. Have you ever been to a concert before?**
+
+- **I was more interested in just** staying at my home to watch a concert **in my free time.**
+
+**e.g. How much money do you usually spend on shoes?**
+
+- **I'm not really a big fan of buying shoes, but I don't scrimp when I buy** shoes. **I regard quality and fit as the most important factors. For running shoes, I spend** between 300 and 500 yuan. **Sometimes, I spend a crazy amount of money on** luxury brands like LV and Parad while giving my girlfriends a sweet surprise.
+
+**e.g. Is it difficult for you to stay focus on something?**
+
+- **It's a piece of cake for me to** stay at work, **especially when I** try something new. Not only I can turn my life around for the better, but I can get out of my comfort zone. **But when I** am feeling a bit down, **it is pretty hard to** concentrate.
+
+#### Stories for p2
+
+| Story 1      | 关键词：乡村、志愿活动、组织活动、有爱心、故事经历、教育     |
+| ------------ | ------------------------------------------------------------ |
+| **适用题目** | 8、9、14、15、17(b站栏目)-46、28、34、43、46                 |
+| 内容         | **时间** I'd like to share the experience working as a volunteer in a poor village. I had joined that project for about half month during the summer vacation last year. **地点** The access to transport was poor in this place and most lived in poverty. The rural school doesn't have even basic equipment. Although living conditions are poor, all studetns study hard.  **人物、事件** I taught some lessons, like writting chinese calligraphy, in the school of this village and taught children about how to learn English by teaching them basic sentences and also vocabulary. And then our team conducted a survey about children from poor homes and wrote a report based on the situations of them. **感受** it's quite enjoyable because I could see how my work could help children. I had a sense of achievement because I could use my knowledge to help needy people. If my classes could fire children's enthusiasm for language learning, they may study hard to pick up this language. In the furture, they are likely to break the cycle of poverty if they could master this language. |
+| 相关词汇     | 庆祝-find the best weather, they just kept running and jumping on the beach. It really melted their hearts 故事- 小孩以前很懒，但是因为我，他学会了努力，他不懒了，变得勤奋 |
+
+| Story 2      | 关键词：烹饪、课程、有趣、冲突 、邻居                        |
+| ------------ | ------------------------------------------------------------ |
+| **适用题目** | 6、7、10、11、13、14、19、22、30、34、49                     |
+| 内容         | **时间** I have enjoyed cooking ever since I was a young child. My mother noticed my talents for doing the cooking and thought I have a knack for it. So she taught me hand by hand, such as choosing high cost-effective and high-quality materials from the wet market and cutting different types of meat. **地点** One afternoon, a new neighbor who had just moved to our community greet with me when I stand in the dooryard. And we chat with each other for a while, so I got acquaintance with him. I know his was from Hunan Province in China, and their food is known for spicy, which I really want to learn how to cook them. And I knew he was running a restaurant specializing in Hunan cuisine. **事件1** By the way, he send me two fish he had caught from a nearby river and told me how to steam it with hot red pepper. So the other day, I made some dumplings and shared with him, and he was eating dinner at that time, and invited me to dinner, the food he made is so delicious, and I asked him how to cook it. **事件2 **He askd me to visit his restaurant the day after, so it was my first time to the kitchen of one restaurant, he taught me how to do spicy poach beef. The first step is to cut beef, and he told me don't open the electric fan, because he can slice the beef so thin that would blow up by wind. I knew he was kidding. But I didn't agree with him, and told him I think a restaurant should provide customers enough food and let them be stuffed. He said beef is expensive, and if he don't do that, he would earn less profit. But I insisted my opinion, and he thought I was too young to know the firece competition of catering industry. I was like, fine, and we continued to do the rest steps. **感受**  When I came back home, I thought his behavior got on my nerves, so I decided to do it by myself with adequet and thick beef, and the meal I made for my family is much more mouth-watering than him, which let me feel a sense of satisfactory. |
+| 相关词汇     | 传统物品- rice wine                                          |
+
+| Story 3      | 关键词：工作、创业、互联网、老板、电脑技术                   |
+| ------------ | ------------------------------------------------------------ |
+| **适用题目** | 2、12、14、15、25(购物)、23、39、41、50                      |
+| 内容         | **事件** The business I'd like to is an online shop, I would sell products on the Internet to earn profit.  **时间** I would take to firends who have experience in e-commerce and consult the internet, following their advice. Once I increase my knowledge about how to operate a business, I will start it.  **地点** I would work at home, using the Internet, mobile phones and fax machines to communciate with others.  **感受(卖)** There are a number of benefits to running an online business. First of all, I can enjoy a high level of autonomy. I can work from home without having to go to work every day. The running cost is also low, and I can increase my business experience. Online shopping is fashionable. As long as you can grasp this opportunity, you can earn a fortune easily **感受(买)** There are some consequences of buying something online. First of all, the advertisements of online shops tend to be misleading. They tend to manipulate potential buyers. Secondly, the products they sell are possibly not of good quality. The standard of service is also poor. |
+| 相关词汇     | 忙-I had a lot on my plate. 建议工作-I was on doing an intership, work buddies, coworkers, prepare for the presentation, supervisor, my probation period |
+
+| Story 4      | 关键词：旅游、便宜、爬山、放松、安静                         |
+| ------------ | ------------------------------------------------------------ |
+| **适用题目** | 2、3、18、21、23(等待)、31、32、33、42、44(lost sth)、45     |
+| 内容         | **事件** It happened about a month ago (时间), I went on holiday with few friends to Hunan. We chose Yuelu Mountain as one of the destinations. Our goal is to climb to the top of Yuelu Mountain. On the morning of one day, we started off with great strength and vigour. **地点** At the foot of the mountain, there is a well-known university - Hunan Normal University that Mao Zedong the former prime minister and Chinese funding father gradauted from there. And there is also an over 1000-year old traditional academy. Visitors can not only learn the history of Hunan, but also appreciate the advanced technology of ancient architecture. There were many brilliant writers and poets gained knowledge in that place throughout history, so the place was considered as a treasure, and every year a large number of students and their parents pay a visit there to pray for good grades. **事件** Yuelu Mountain is not so high and is more like a park. You may choose to walk to the mountain top or take a cable car. We carried food and water in our backpacks and walked all the way up. We walked and talked along the way and took photos of each other. Although the mountain is not high, it took us 3 hours to get to the top. **地点** At the top, you can overlook Xiang river in distance, Meanwhile, it is sort of a wake-up call for all the Chinese, as it represents revolutionary.there are many war there which red the river. The spirit of sacrificing oneself to protect the family and defend the country inspre us to keep moving forward.  **感受**When we climb up to the summit, I had such a strong feeling - Looking up, you can see the immensity of the cosmos; bowing your head, you can look at the multitude of the world. The fact showed that our outing plan was very successful. All of my friends had great fun. We chatted and enjoyed with songs and laughter along the way. |
+| 相关词汇     | transformation through political turmoil. 33(安静)- It's not so crowded. It isn't like one of these huge cities with a fast-paced life and everyone rushing to get where they need to go. laid-back. calm my nerves. 45(水)- water, irrgation, and transportation 丢掉东西- I left my phone. I forgot about it until I came to look for it the next day. increase your chance of getting it back. 便宜-We didn't spend a crazy amount of money on this ticket, like 20 yuan per person, which I think is cheap and cheerful 交通- go on a road trip, the traffic was bumper to bumper, It's like I was in prison for ten days |
+
+
+
+| Story 5      | 关键词：人、邻居、语言学习、文化差异、国外工作               |
+| ------------ | ------------------------------------------------------------ |
+| **适用题目** | 1、4、20、27、36、41、48                                     |
+| 内容         |                                                              |
+| 相关词汇     | 工作- employees，starting a business, work as a..., customer needs, maintain good product quality and keep their customers happy. |
+
+
+
+| Story 6      | 关键词：生活变动、发明、开心的事物、保持健康、比赛           |
+| ------------ | ------------------------------------------------------------ |
+| **适用题目** | 5、10、16、26、29、30、35、37、38、39、40、47、50            |
+| 内容         | **项目** I'm going to talk about a program named pomodoro, which means "tomato" in Italian. It's well-known work management skill and I developed the program using the same name on my own with good designs to help with appling this effective skills. **事件** As you know, I‘m majoring in computer science, so most of my time, I need to use computer to finish the work. So it often leads me to live a sedentary lifestyle and concentraing on screen for a long time pose a threat to my neck and my eyes. **动作** I used to work overtime, but one day when I found things became kind of dim and I was not able to see fonts clearly on the books, I realized I need to change my way sof working. I mean, I need more breaks rather than sitting in front of my computer all the time, which can help relax my eyes and refresh my mind. **内容** I went through a book called pomodoro that introduce how it operates and the way to make full use of it, which I found pretty helpful. And I consulted the Internet to find exiting program developed by others, but none of them can meet all my needs. So, I decied to code one by myself. **物品** I had designed various features  and functions, but at the same time I try to keep the interface tidy and pleasing to the eye. And compared with other apps, mine could record activities and the number of tomatoes every single day, so it would be particularly convenient for me to be able to organise my life. And I has an instant access to set remainder and the deadline for each items so that I can check calendar at a glance. Speaking of sound effects, the sound of the ring can put me in good moods, coz it is one of the fragments of one melodious music I like to listent to. As for rewarding function, I even set a roulette to give motivation by randomly rewarding after finishing a certain number of tomato times. **感受** I feel a great sense of pride and achievement, coz I succeed in applying knowledge to practicial use. I think it would be nice to have one for helping me concentrate on my work and ensure enough breaks. It always come in handy when I get on my nerves about something. So, it's a must-have for me, I cannot go a day without it. |
+| 相关词汇     | 健康- increase a person's metabolism,get in shape, live a healthier life. 邻居-Because he has lives just next door to me, we often bump into each other 有趣-I never see him wear a poker face 发明-It has changed business, education and even the ways in which we interact with our loved ones. connect. gain a great deal of knowledge |
+
+#### Structures for p3
+
+- **S1** 问到未来的发展趋势 1.被取代 降低成本 2.互联网化 与生活息息相关 **e.g. What kind of music is popular in China now and what kind will be in the furture？** 
+- **Current day China,** Pop music from western influences and other Asican countries such as Korea and Japan **becomes widespread in the modern life.**  The young generation listens to **a broad range of music from** hip hop **to** new-age folk. **I suppose quite a few thing could happen, one of which might be that the future of music will most likey** follow the same trends we are seeing on TikTok. **Because** the yound are fascinated by scrolling through scoial media. **So that's one thing, and as well as this, I picture it's also possible that **music **will become more Internet-based, because the influence of the Internet has increased incredibly in the last ten years or so.**
+- **S2** 问到政府投资xx项目 1.xx项目需要很多成本但是收益不大2.不如放在教育和医疗上
+- **e.g. Do you think it is necessary for the government to invest in the film industry?**
+- **No, I do not think governments should invest in the film industry.** The film industry is a highly profitable business, and many top-grossing films are peoduced every year. Many people pay closer attention to lesiure activities nowadays and they love to go to the cinema to kill time.  For instance, some people like big-budget films which have special effects and star famous actors and actress. These films attract many movie-goers and perform well in the box office. Instead of spending money on filmmaking, governments can invest in public services which meet human basic need and improve people's living standard. They can provide funds for some areas such as education, healthcare, so that people can have easier access to medical services, that school in poor areas are given enough financial aid to enhance their facilities.In other words, governments should give top priority to investments on education, technology and basic human needs, then invest in entertainment facilities to increase emtional wellbeing and enrich one's cultural life.
+- **S3** 怎么做可以...？1.这个问题的难点 2.可能的解决方式的好处和优势,same thing twice,different way.
+- **e.g. What could be done to learn science well?**
+- **Although I am not sort of education expert, I suppose** the most effective one is to learn from a good teacher, **which is the decisive factor to learn anything well**. A good teacher could give students motivation to study the course on their own. **If the students are willing to learn science,** they would, without a doubt, achieve high scores in the test.
+- **e.g. How do you think noise in cities could be reduced?**
+- The most effective one is to impose a fine on companies or individuals **who make excessive noise, especially construction companies,** because I would say they are, by far, **the biggest culprits (罪魁祸首).** 
+- **S4** 分类讨论 **e.g. What kind of music do people like at different ages?**
+- **Young people, on the whole, mainly like** listening to pop music, **whereas the older generations tend to prefer** listening to more traditional music, like folk music, Beijing opera, etc.
+- **e.g. What kind of things can young people learn from old people?**
+- For example, elderly people tend to care about saving their money, while young people tend to be more wasteful with their money; elderly people tend to think about their health every day, and young people tend to take their health for granted; elderly people tend to appreciate the people in their life, however, young people tend to sacrifice relationships for career goals.
+- **tip:** 如果不会相关词汇，过渡一下，就使用不管... 只要...  
+- It doesn't matter what kind of games it is, as long as it can make us haopy and give us a sense of achievement and pride. 
+- **S5** 好处+现象/坏处+点题 **e.g. Do Chinese parents require their children to learn to play musical instruments?** 
+- **A1: (好)Learning to play an instrument takes a lot of time, patience and practice**. During music lessons, a teacher will set short term and long term goals. **As the child reaches theire goals, they will feel a sense of achievement and pride.** （现象）**The competition is so fierce nowdays that if you got out onto any street in china, the chances you will see countless seminar and workshops take place around to tell a paying public that they ought to learn more skills. Chinese parents want their children live a fuilling life, so I think it make sense to** 点题.
+- **e.g. Do you think old people should be taken care of at home?**
+- **A2: (点题)This one might seem obvious, but it's an important pro nonetheless.** (好) Interacting with family can have several benefits for seniors. It can alleviate the feeling of loneliness seniors sometimes feel, and it can provide a friendly environment where your love one can feel useful and wanted. (坏)**In terms  of the drawbacks, I guess the main one would be / But taking in your loved one will increase your responsibilities, and with it your stress level.** From the care they need, to the financial responsibilities, it can add up quickly. You'll need to make sure you can dedicate time and patience to your loved one or they might feel forgotten, despite beeing in the same house as you.
+- **S6** mental representation **e.g. Why do some people like to listen to live music while others prefer CDs**
+- You know, （画面1）listening to live music in real life is **a much more** immersive experience **than** watching it on screens. **In a live performance the audience is able to** see each actor's movement, facial expression, gesture on stage. (画面2) **And listening to CDs at home is far more convenient than** listening to live music in person.
+- **e.g. What qualities does a person need to have when taking care of old people?**
+- Trustworthiness. (画面) Caregivers are often in a position what will allow them to have access to the belongings of the person they are caring for. It is crucial that the caregiver be someone who is trustworthy and will **not breach the trust by taking advantage of the person he or she is caring for.**
+- **S7: 时间轴** What are differences between famous people today and those in the past?
+- **More people who** have no talent other than to make themselves appear to be fools are now famous **than they were in the past.** **Once you actually needed** a talent to make you stand out from the masses; **now all you need to do is** allow others to observe a fictional accounting of your life and ridicule you. 
+

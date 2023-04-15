@@ -1,0 +1,1604 @@
+### test 1
+
+- a great variety of
+- a balanced diet
+- a couple of
+- a pair of glasses
+- ==a period of time==
+- A plus
+- a series of 
+- a serious person
+- ==a sharp turn==
+- academic English
+- academic problems
+- academic systems
+- academic teaching staff
+- accommodation expanse
+- accommodation fee
+- accommodation form
+- accountants
+- action plan
+- ==added panic==
+- ==admission card==
+- admission office
+- adult students
+- advanced course
+- advanced degree
+- advanced English degree
+- ==advanced English studies==
+- ==agrarian reform==
+- ahead of time
+- aim of lecture
+- aims
+- air pollution
+- air pump
+- air shelter bus
+- air conditioner
+- ==alarm system==
+- alternative energies
+- ATM
+- amusement park
+- ==an educational film==
+- ==analyse data==
+- ancient temple
+- annual membership fee
+- answer questions
+- ant intelligence
+- antibiotics and acid
+- ==appearances==
+- apple juice
+- application form
+- applied ==mathematics==
+- applied science
+- ==architecture style==
+- ==Arctic Ocean==
+- ==Atlantic Ocean==
+- avoid touching rocks
+- arm badge
+- ==arrive at one's destination==
+- art gallery
+- art museum
+- articles from journal
+- artistic approach
+- Asian studies
+- assessment methods
+- assessment of patients
+- assistant professors
+- associate with
+- ==assume the responsibility==
+- at least
+- area for improvement
+- awards
+- ==atmospheric pollutant==
+- atmospheric warming
+- Australian dollar
+- ==average ability==
+- ==bricks==
+- ==bowls==
+- ==Bachelor‘s degree==
+- bad eyesight
+- bad management
+- ==baked earth==
+- ==bank statement==
+- ==bank transfer==
+- banking center
+- bar chart
+- bar code
+- barbecue set
+- barren land
+- ==barren mine==
+- ==basic course==
+- ==basic rule==
+- be allergic to sth
+- be out of temper
+- ==bad sheet==
+- ==bad linen==
+- be prone to
+- beginning course
+- belts
+- biological clock
+- black raincoat
+- black skirt
+- black tea
+- black trousers
+- ==black velvet==
+- blocks
+- ==blood flow==
+- ==blood sample==
+- ==bloom old flowers==
+- blue sweater
+- ==boarding school==
+- boat trip
+- book in advance
+- book reservation
+- ==bones==
+- bolling alley
+- botanical garden
+
+### test 2
+
+- ==bulletin board==
+- breathtaking
+- breed fish
+- British Council
+- British library
+- British Museum
+- ==broaden one's horizon==
+- ==broaden one's view==
+- ==brother-in-law==
+- ==buses==
+- bus pass
+- ==bus routes==
+- business card
+- business class
+- business culture
+- ==business ethics==
+- ==business faculty==
+- business studies
+- business trip
+- cages
+- ==cabin keys==
+- ==cable car==
+- circulation desk
+- ==call slip==
+- ==campus crime==
+- candles
+- cannot miss the deadline
+- ==car model==
+- ==car rental==
+- ==car tyre==
+- card index
+- car catalog
+- ==comment card==
+- carbon dioxide
+- ==carve==
+- ==carving wood==
+- case study
+- case studies
+- ==choices for facilities==
+- ==cassette recorders==
+- CD player
+- ==CD-ROM==
+- ==casual clothes==
+- ==casual wear==
+- ==charges==
+- ==cater to==
+- ==catering facilities==
+- catering staff
+- center hall
+- center manager
+- canter heating
+- central avenue
+- central park
+- central station
+- certificate of childcare 
+- charitable organization
+- charity hospital
+- check in
+- check out
+- ==checklist==
+- ==chest infection==
+- ==chemistry lab==
+- church road
+- ==chequebook==
+- ==cheque card==
+- concentrate on
+- ==circus performance==
+- ==Children's Day==
+- ==cheese production==
+- ==city's expansion==
+- city council
+- ==city overhead view==
+- ==commuters==
+- ==class representative==
+- ==conquerors==
+- ==cleaning equipment==
+- ==cleaning materials==
+- ==clear argument==
+- classmates
+- ==coarse texture==
+- comfortable clothes
+- colleges
+- clock watch
+- ==closed shelves==
+- ==close-book exam==
+- ==closed reserve==
+- ==closed circuit TV==
+- coffee shop
+- coffee break
+- coffee machine
+- collection tank
+- collections
+- ==college close-up== 
+- ==common residence==
+- common room
+- common sense
+- communication skills
+- communication strategies
+- communication technology
+- conference reports
+- contact list
+- company actions
+- ==compulsory course==
+- computer model
+- computer programmer
+- ==computer sound card==
+- computer system
+- ==connecting flight==
+- ==concert hall==
+- ==concert room==
+- classical music
+
+### test 4
+
+- ==contact lenses==
+- cooperating research elements
+- coping with stress
+- ==corporate loan==
+- cost effective
+- ==cost of living==
+- costume party
+- ==cough mixture==
+- country music
+- course fee
+- course and materials
+- course director
+- cover the cost
+- ==craft goods==
+- ==credit card==
+- ==creeks==
+- crime awareness
+- crime rate
+- cross passage
+- ==cultural differences==
+- ==culture shock==
+- ==curve chart==
+- currency form
+- current account
+- ==cycling route==
+- ==customs service==
+- ==cut and polished==
+- damages
+- ==dark clothes==
+- ==dark trousers==
+- ==dateline==
+- ==data analysis==
+- ==data assessment==
+- date of birth
+- ==data of expiry==
+- ==date slip==
+- ==day pupil==
+- day school
+- day shift
+- debts
+- decades
+- decayed teeth
+- laboratory
+- decoration balloons
+- deliver a speech
+- deliver 
+- department building
+- department store
+- departmental address
+- desire to learn
+- ==desk lamp==
+- details
+- detective film
+- digital camera
+- digital system 
+- different levels
+- dinning hall
+- dinning room
+- diseases
+- distant deadline
+- distance learning
+- divorce rate
+- distinguish feature
+- distribution of population
+- downward trend
+- do training courses
+- Doctor's degree
+- domestic factors
+- domestic students
+- domestic violence
+- ==door key==
+- ==door-to-door service==
+- drugs
+- double lock
+- double room
+- double grill
+- drama theater
+- drama festival
+- drama teacher
+- draw a conclusion
+- disabled assess
+- dropout rate
+- dress code
+- ==dress rehearsal==
+- ==disputes==
+- drinking machine
+- drinks and snacks
+- drink less coffee
+- driver's license
+- driving license
+- ==directors==
+- drop-off side
+- drop-off
+- ==El Nino==
+- Eagle Road
+- eastern beach
+- eat harmful insect
+- economic growth
+- economic history
+- economic class
+- education exhibition
+- education officer
+- ==education standard==
+- education system
+- electronic director
+- ==electric fan==
+- ==electricity bill==
+- ==electricity fee==
+- ==electronic dictionary==
+- email attachment
+- email account
+- email address
+- emergency contact person
+- emergency telephone number
+- ==dial==
+
+### test 5
+
+- emotion and mood
+- end of term
+- endangered species
+- ==energy industry==
+- ==engineers==
+- ==engineering room==
+- engrave
+- enrollment fee
+- ==entrance fee==
+- environment agency
+- environmental damage
+- environmental issues
+- environmental science
+- environmental studies
+- environmentally friendly
+- ==Evening news==
+- evening appointment
+- ==exercise one's muscles==
+- ==exhibition of instruments==
+- ==experimental for construction==
+- experimental facilities
+- ==expected duration==
+- express train
+- express way
+- extension number
+- ==extensive writing==
+- exchange drafts
+- extra charge
+- ==extra workload==
+- ==ethical film==
+- eye doctor
+- eye contacts
+- essay plan
+- extinct species
+- face-to-face interview
+- failure rate
+- family medical history
+- familiar with
+- family abuse
+- family ticket
+- family name
+- family relationship
+- fancy dress
+- fancy ball
+- fancy dress party
+- falcons
+- farewell party
+- farming product
+- ==fear of unemployment==
+- ==feel one's pulse==
+- ==female corpse study==
+- ==field method==
+- field system
+- field trip
+- field work
+- film festival
+- film studio
+- financial advice
+- financial affairs
+- financial budget
+- financial department
+- ==financial executive==
+- financial goals
+- financial market
+- financial organization
+- ==financial policy==
+- financial problems
+- financial shortage
+- financial source
+- fine arts
+- fine texture
+- fire alarm
+- fire blanket
+- fire drill
+- fire management
+- ==first floor==
+- first name
+- ==first-aid kit==
+- first year student
+- ==fish cakes==
+- fish tank
+- fishing boat
+- fishing industry
+- fitness center
+- fitness club
+- fitness level
+- fitness training
+- ==fixed expenses==
+- flexible working time
+- flight number
+- ==flowers' taste==
+- flying craft
+- flying speed
+- food processing
+- food and oil
+- ==food chain==
+- focus on
+- football club
+- football match
+- for sale
+- forestry industry
+- formal clothes
+- four nights
+- fortnight
+- fourth-year student
+
+### test 5
+
+- free for heating
+- free of charge
+- free transportation
+- fruit juice
+- fruit trees
+- functions and places
+- full-time
+- full name
+- ==fur trade==
+- further education
+- garden hall
+- garden tools
+- generation of electricity
+- gas station
+- general election
+- general English
+- general English practice
+- ==general health==
+- ==general ideas==
+- ~ method
+- ~ science
+- ==geography trip==
+- geographic location
+- ==geographical value==
+- ==give somebody a sack==
+- given name
+- give a prescription
+- give up
+- give a speech
+- ==give confirmation==
+- ==get feedback==
+- guidebook
+- guided tour
+- ==go to hospital==
+- global listening
+- global warming
+- gold medal
+- gold street
+- golf club
+- good eyesight
+- good shoes
+- ==good steering==
+- ==goodbye party==
+- government policy
+- ==government-funded==
+- ==grasp keywords==
+- graduate school
+- ==graduation announcements==
+- ==grand pattern of timber==
+- ==grand pattern==
+- great favorite
+- ground floor
+- green waste
+- ==greyhound bus==
+- ==group discussion==
+- ==gym membership==
+- hens
+- ==high wind==
+- ==half human==
+- ==half term==
+- ==hard-hoofed animals==
+- ==hall of residence==
+- ==halls of residence==
+- ==hand pump==
+- ==hands broken==
+- have assess to
+- harmful insect
+- ==harmful to humans==
+- have strong hearts and lung
+- ==have an operation==
+- have high rank in geography
+- ==have strong financial muscle==
+- ==help desk==
+- head master
+- head office
+- health care
+- health check
+- health club
+- ==heart attack==
+- ==heartbeats==
+- heart disease
+- ==heat indicator==
+- ==horse hair==
+- ==horse riding==
+- ==herb tea==
+- ==herd of  cattle==
+- ==host family==
+- high rank
+- highly-trained staff
+- higher education
+- ==high-rise buildings==
+- high-quality camera
+- ==honeymoon suite==
+- historical museum
+- history of school
+- historical maps
+- ==horror film==
+- hot dog
+- ==hot meal==
+- ==hothouse effect==
+
+### test 6
+
+- hotel crime
+- ==hunt for==
+- ==house insurance==
+- house keys
+- housing agency
+- human beings
+- human consumption
+- human race
+- ==human resources==
+- ==ice curling==
+- ==ice pack==
+- ice skating
+- identities
+- identity card
+- ==illegal profits==
+- ==in visible view==
+- immune system
+- in advance
+- in chemistry lab
+- ==in circles==
+- ==in circulation==
+- Indian ocean
+- incoming call
+- independent state
+- ==industrial material==
+- information board
+- information video
+- ~ desk
+- information page
+- ==~ sector==
+- inland region
+- initial migration
+- ==injection of vaccine==
+- ==institutes==
+- ==institutions==
+- ==insects haunting==
+- ==instructors==
+- instruction of handbook
+- instant coffee
+- ==interpersonal skills==
+- insurance companies
+- insurance company
+- intensive course
+- ==intensive study== 
+- inter-library service
+- ==intermediate course==
+- internal clock
+- international club
+- international evening
+- international student card
+- international student
+- Internet assert
+- Internet cafe
+- ! system
+- ==irrigable land==
+- ==isolated spot== 
+- job interview
+- ==jaws==
+- ==joint membership==
+- ==keepers==
+- ==jump the queue==
+- jump the line
+- ==killer whales==
+- ==KungFu film==
+- ==kelp forest==
+- ==key approach==
+- ==key to reception==
+- keywords
+- keep somebody out of work
+- ==king-sized bed==
+- ==king suite==
+- knife
+- kitchen table
+- ==kitchen utensils==
+- ==lamps==
+- listening tape script
+- ==lab equipments==
+- lack confidence
+- ==lack of confidence==
+- landmark
+- ==large slide==
+- large scale housing
+- ==lecture hall==
+- laser printing
+- last but not least
+- last name
+- ==lawyers==
+- layout of resume
+- ==learning strategies==
+- learning style
+- ==leisure ware==
+- ==leisure activities==
+- ==level of maturity==
+- lemon tree
+- ==letter of recommendation==
+- library card
+- library resource
+- ==life science==
+- ==life cycle==
+- ==life expectancy==
+- life insurance
+- ==lights==
+- link to 
+- ==literary film==
+- ==list or headings==
+- list of objectives
+- lecture theater 
+
+#### test 7
+
+- living cost
+- living expanses
+- loans
+- local walking club
+- local history
+- local industry
+- local pet shop
+- local product
+- local resident
+- local school
+- local shop
+- local student
+- ==local tribes==
+- ==lookout points==
+- lock all windows
+- ==long-term loan==
+- loss of soil
+- loss temper
+- loudspeaker
+- love story
+- low nutrition
+- low frequency noise
+- low income
+- magazine and journals
+- ==magical animals==
+- machines and robots
+- martial arts
+- maid servant
+- mails
+- ==mailing list==
+- major in nursing
+- ==main course==
+- main entrance
+- main hall
+- main kitchen
+- main library
+- main appointment
+- ==make plans==
+- ==map of cave==
+- manage time better
+- ==manmade dam==
+- manual facilities
+- market research
+- market cycle
+- market economic
+- marketing management
+- marketing research
+- ==marketing techniques==
+- marketing seminar
+- marketing strategies
+- mass media
+- mind map
+- master degree
+- ==master card==
+- ==meat and cheese==
+- ==mathematic formula==
+- mature student
+- media studies
+- media center
+- media room
+- ==medical science==
+- medical center
+- medical history
+- book list
+- membership consultant
+- membership of club
+- mental ability
+- mental education
+- ==microwave oven==
+- ==mid-autumn festival==
+- ==midmorning snacks==
+- mid-range
+- mid-semester
+- migration patterns
+- millage ticket
+- miles
+- military museum
+- mill the grain on the ground
+- millions of
+- mountains
+- mineral water
+- minimum qualification
+- mining industry
+- mobile phone
+- modern languages
+- modern mange hotel
+- ==modern sports facilities==
+- ==money diary==
+- money lender
+- money management
+- ==money order==
+- ==monopoly of education==
+- ==mosquito net==
+- mother in law
+- movie posters
+- movement of muscle
+- music equipment
+- music instruments
+- notice board
+- ==name badge==
+- native animals
+- negative effect
+- natural medicine
+- natural museum
+- ==natural fiber==
+- ==new technologies==
+- ==nights==
+- night shift
+- ==no allergy==
+- no charge
+- no nuts
+- no medicine item
+- non stop flight
+- ==not check identities==
+- ==not for circulation==
+- number of exposure
+- ==number of occupants==
+- nursing care
+- nursing diploma
+- ==occupational factors==
+- nursery
+- nursery school
+- ==obligatory course==
+- self-sufficient
+- ==off campus==
+- office assistant
+- ==overfill==
+- ==oil explosion==
+- ==olive oil==
+- ==OHPEN==
+
+### test 8 
+
+- on campus
+- on foot
+- on sale
+- on small scale
+- on-way ticker
+- one-way
+- online shopping
+- ==open admission==
+- ==open shelves==
+- ==open-book exam==
+- ==optic examination==
+- optional course
+- optional expenses
+- ==oral defense==
+- orange juice
+- ordinary farmers
+- organic farming
+- ==organic fiber==
+- organic food
+- organic material
+- oriental studies
+- ==original reason==
+- out circulation
+- out of temper
+- out on loan
+- outside activities
+- ==overall aim of the health club==
+- ==overall trend==
+- ==overdue and pay a fine==
+- overhead projectors
+- overhead view
+- overseas students
+- ==hitchhike==
+- packages
+- ==package tour==
+- packing list
+- pacific ocean
+- ==padding pool==
+- ==pages==
+- ==pal group relationship==
+- ==palaces==
+- ==palm tree==
+- ==paper jam==
+- ==parent‘s meeting's end==
+- parental teaching
+- part-time job
+- part-time
+- ==party wears==
+- ==passport photos==
+- pay for loss
+- payment method
+- per day
+- per month
+- per person
+- per week
+- per year
+- permit required
+- personal alarm
+- personal statement
+- personal trainer
+- phd
+- ==philosophers==
+- ==phone bill==
+- ==photocopies of notes==
+- ==photocopies of articles==
+- ==photocopies of article==
+- ==photocopy office==
+- physical activities
+- physical education
+- physical surrounds
+- physical therapy
+- ==pie chart==
+- pine tree
+- pink slip
+- placement rest
+- ==planet science==
+- ==planet society==
+- ==planning meeting==
+- planting garden
+- ==plastic bags==
+- plastic collection
+- plus
+- ==pocket money==
+- point of view
+- ==polish cars==
+- poor area
+- pock test
+- population explosion
+- population growth
+- ==population of crocodiles==
+- positive effect
+- ==possible causes of stress==
+- ==postal survey==
+- power company
+- practical material
+- practical skills
+- ==precautions==
+- ==precious stone==
+- presentation skill
+- president suite
+- previous data
+- previous insurance company
+- previous result
+- previous studies
+- price list
+- ==principal==
+- printed card
+- printed catalog
+- private bathroom
+- private property
+- private school
+- private trip
+- ==prize giving==
+- professional learning
+- project work
+- project background
+- project outline
+- profits
+- psychological patine
+- psychology course
+- public transport
+- public awareness
+- ==public examination==
+- public facilities
+- public health
+- public interest
+- public school
+- public service
+- ==public skills==
+- quality of teaching
+- quality of education
+- ==quality of personnel== 
+- ==quarry tiles==
+- property insurance
+- ==question handling==
+- ==queen's suite==
+- queen-sized bed
+- queens park
+- ==RA== research assistant
+- ==railway rail==
+- railway station
+- railway tracks
+- railway worker
+- random selection
+
+### test 9
+
+- range of English level
+- ==rapid population growth==
+- ==raw materials==
+- rare lions
+- rare species 
+- rare fish
+- ==reach one's destination==
+- readers
+- reading habits
+- ==reading hits==
+- reading list
+- reading session
+- ==recall library books==
+- recall system
+- receive prizes
+- reception area
+- reception center
+- ==reception desk==
+- ==recreation therapy==
+- ==recruiting method==
+- recycling material
+- red flag
+- ==red kangaroo==
+- red meat
+- reference books
+- reference skills
+- reference stacks
+- ==refresher course==
+- ==registered mail==
+- regular meetings
+- regulations
+- ==reinforced by wood and steel==
+- relate to
+- ==remain steady==
+- replacement  of job
+- replacement policy
+- ==required course==
+- research approach
+- research system
+- research findings
+- research method
+- research opportunities
+- research results
+- ==research source==
+- ==resident student==
+- ==residential college==
+- resistance from parents
+- resource management
+- resource protection
+- resource sharing
+- resources room
+- ==respect the local environment==
+- result from
+- result in
+- ==review of literature==
+- review promptly
+- ==rice cultivation==
+- ==Riverside restaurant==
+- ==Rose lane==
+- robots
+- rock salt
+- ==romance story==
+- rose garden
+- row house
+- round trip ticket
+- round trip
+- ==route map==
+- ==road map==
+- royal commission
+- ==rubber blanket==
+- ==rubber tree==
+- rules and regulations
+- run risks
+- running facilities
+- running tunnel
+- rural area
+- ==role of staff==
+- rush hour
+- ==safety check==
+- ==safety helmet==
+- ==safety helmets==
+- sales team
+- safety office
+- safety regulations
+- Silent Island
+- ==sandglass class==
+- satellite TV station
+- ==school of arts and  sciences==
+- school uniform
+- science fiction
+- science museum
+- scientific research
+- scientific approach
+- ==scores==
+- ==sea otter==
+- ==sea urchin==
+- sea watch
+- seafood restaurant
+- ==seat belt==
+- seating capacity
+- second floor
+- second-hand textbooks
+- secondary school
+- second-year student
+- sedentary lifestyle
+- selection method
+- self-access lab
+- self-defense
+- self-service restaurant
+- senior advisor
+- senior manager
+- senior staff
+- sense of achievement
+- sense of success
+- sensible exercise
+- sentences
+- service manager
+- set money aside
+- shared bathroom
+- shared social area
+- shear the sheet
+- sheet and cattle
+- sheet shearing
+- shift work
+- shop assistant
+- shop manager
+- shopping center
+- shopping list
+- shopping mall
+- shortage of money
+- ==sick note==
+- ==side effects==
+- ==safari zoom==
+- ==safari park==
+- similar experiments
+- single item
+- size of population
+- size of sample
+- ==silver cloth==
+
+### test 10
+
+- sky dome
+- sleeping pills
+- sleeping sickness
+- slide presentation
+- ==small scale==
+- ==small scar on his chin==
+- ==smoker alarms==
+- social activities
+- ==social isolation==
+- social issues
+- ==social matter effects==
+- ==social matters==
+- social problems
+- ==social status==
+- social workers
+- soft drinks
+- ==soft toys==
+- sound effect
+- solar system
+- solar power
+- ==sore throat==
+- spare time
+- ==spare parts==
+- ==spare socks==
+- space shuttle
+- special audio equipment
+- ==special chemicals==
+- ==special mail==
+- ==special offers==
+- ==special party hats==
+- special rule
+- ==specialist engine design==
+- ==specialized course==
+- ==specialized museum==
+- ==specialized sports facilities==
+- ==species in rare animal area==
+- ==species of crocodiles==
+- ==spending plans==
+- spiders
+- ==spinous plants==
+- ==spiral notebook==
+- sports articles
+- sports suit
+- sports center
+- ==sports hall==
+- sports shoes
+- ==stack system==
+- stacks
+- ==standard of education==
+- standard suit
+- stars
+- ==starter project==
+- ==starting point==
+- stars
+- ==steak set==
+- steam engine ship
+- ==steel and wood==
+- ==stiff neck==
+- ==still water==
+- stock market
+- ==stomach and heart==
+- stomach muscle training
+- stones
+- ==storage space==
+- ==storehouse and temples==
+- stories
+- story conference
+- stress levels
+- stress management
+- stressful
+- stretching
+- stretching movement
+- ==strict control==
+- ==strong scent==
+- strong wind
+- student account
+- student banking 
+- student debt
+- ~ hostel
+- ~ information desk
+- ==student representative==
+- ! service
+- ! support service
+- ! union
+- studio apartment
+- study aids
+- study circle
+- study club
+- study techniques
+- styles
+- ==stuffed nose==
+- ==stuffed toys==
+- stuff of purse
+- ==subject access guide==
+- subject access
+- submit the document
+- sufficient details
+- ==supportive atmosphere==
+- ==support service==
+- ==sun's position==
+- ==suntan block==
+- sun cream
+- summary report
+- ==survey conducted==
+- survey of reading
+- survival course
+- swimming costume
+- swimming in waterfall
+- swimming pool
+- swimming suit
+- TA
+- ==tablets==
+- take notes
+- ==take blood pressure==
+- ==take one's temperature==
+- take regular exercise
+- take risks
+- taxi stand
+- technical vocabulary
+- ==technical institution== 
+- teaching club
+- teaching hours
+- teaching method
+- teaching staff
+- ==teaching syllabus==
+- teachers and faculty
+- tape recorder
+- ==telephone survey==
+- ==television drama==
+- ==temple wall==
+- temples
+- tennis club
+- ==terraced house==
+- ==terrestrial heat==
+- ==tertiary education==
+- text structure
+- ==textbook allowance==
+- the marketing department
+- the disabled
+- the old
+- the poor
+- ==the Milky way==
+
+### test 11
+
+- theme garden
+- theme of project
+- theme park
+- ==theoretical background==
+- ==theoretical framework==
+- tiger shark
+- theory chapters
+- ==theory of application==
+- therapy method
+- ==tilled land==
+- third floor
+- third year student
+- thinking pattern
+- way of thinking
+- timetable
+- time measurement
+- time priority
+- time management
+- title of essay
+- to some degree
+- to some extent
+- toilet facilities
+- too much work
+- tomatoes
+- tones
+- ==top shelf==
+- top ten
+- touching rocks
+- ==tour guide==
+- ==tourism organization==
+- ==tourist brochures== 
+- ==Town hall==
+- toy factory
+- traffic flow
+- traffic jam
+- traffic lights
+- traffic rules
+- traffic safety
+- transportation card
+- travel agency
+- travel package
+- ==traveler's check==
+- treatment method
+- trinity college
+- ==tropical disease==
+- ==tuition fee==
+- tutorial system
+- twin room
+- TV serials
+- TV chat show
+- under pressure
+- undergo processing
+- underground car park
+- underground railway
+- unhealthy diet
+- ==union bank==
+- ==units of measurement==
+- university drive
+- university facilities
+- university guide
+- ==university of Wollongong==
+- university resource
+- unsocial hours
+- ==upward trend==
+- urban area
+- ==vacuum cleaner==
+- ==vacuum the stairs==
+- vary according to the type,shape
+- vary one's diet
+- vegetable burger
+- video project
+- video recording
+- video signal
+- video tape editor
+- visual aids
+- vip-class
+- virtual learning
+- visa
+- ==violent crimes==
+- ==volcanic dust==
+- warm bath
+- volume chart
+- voting system
+- waiting list
+- ==walking boots==
+- ==walking club==
+- ==weight training==
+- washable shoes
+- washing machine
+- ==weeding photos==
+- waste handling
+- ==waste disposal==
+- ==X-ray==
+- ==weaving blanket==
+- water fee
+- water heater
+- water park
+- water resources
+- ==water skiing==
+- ==weekly return==
+- ==welcome package==
+- welcome party
+- ==welfare department==
+- ==western Europe==
+- ==wheelchair==
+- white meat
+- ==wholesale==
+- wide reading
+- wide writing
+- widen one's horizon
+- ~ view
+- wind power
+- wind tunnels
+- window addressing
+- ==wing design==
+- withdraw cash
+- ==women author==
+- ==wood should be cut and seasoned==
+- work objective
+- work place
+- work systematically
+- ==World expo==
+- ==wretched boat==
+- wild animals
+- ==youth hostel==
+- ==your own embassy==
+- yellow fever
+
+### test 12 
+
+- abbreviation
+- access
+- accessible
+- accident
+- affair
+- ==announcement==
+- assume
+- accommodation
+- ==recommendation==
+- ==annex==
+- according
+- ==breeding==
+- surrounding
+- cooking
+- ==account==
+- accountancy
+- accounting
+- addition
+- additional
+- address
+- dress
+- dressing
+- ==assessment==
+- admission
+- commission
+- depression
+- affect
+- effect
+- effective
+- ==effectively==
+- appeal
+- annual
+- ==arrival==
+- applicant
+- application
+- ==applied==
+- ==appliance==
+- approach
+- appointments
+- approval
+- ==approximate==
+- ==assistance==
+- ==assistant==
+- associate
+- association
+- attachment
+- attack
+- ==attempt==
+- attitude
+- attend
+- ==attendance==
+- attention
+- attentive
+- ==business==
+- ==balloon==
+- cartoon
+- spoon
+- billion
+- ==ballroom==
+- bathroom
+- playroom
+- roommate
+- barren
+- barrier
+- better
+- buffet
+- beginner
+- beginning
+- planet
+- planing
+- blood
+- ==bloom==
+- ==boots==
+- book
+- booking
+- ==booklet==
+- ==cannibal==
+- connect
+- ==cassette==
+- ==cattle==
+- classical
+- classification
+- classmate
+- comment
+- commercial
+- ==communication==
+- community
+- common
+- ==cotton==
+- coffee
+- cottage
+- cramming
+- ==running==
+- weeding
+- banned
+- current
+- currency
+- cooperate
+- crossroads
+- ==dessert==
+- ==dissertation==
+- different
+- difference
+- dinner
+- ==dizzy==
+- little
+- pizza
+- discuss
+- discussion
+- speech
+- suggestion
+- ==door==
+- ==dollar==
+- ==floor==
+- ==poor==
+- ==efficient==
+- essential
+- ==exaggerate==
+- essay
+- embassy
+- issue
+- ==curriculum==
+- express
+- congress
+- ==pressed==
+- pressure
+- fee
+- feedback
+- ==ferry==
+- ==fossil==
+- food
+- foot
+- football
+- ==footprint==
+- goods
+- ==gallon==
+- grammar
+- handbook
+- textbook
+- notebook
+- newsletters
+- ==hippo==
+- ==hoover==
+- horror
+- ==hall==
+- immune
+- irrigation
+- ==irritation==
+- useless
+- impossible
+- incorrect
+- innovation
+- interviewee
+- lesson
+- degree
+- ==likelihood==
+- ==firewood==
+- ==matter==
+- mammal
+- mass
+- massage
+- midday
+- million
+- ==narrator==
+- ==lookout==
+- ==occasion==
+- ==occupant==
+- ==occupation==
+- ==occupational==
+- offer
+- office
+- officer
+- passage
+- ==passport==
+- password
+- pattern
+- paddle
+- ==penny==
+- personnel
+- pottery
+- process
+- precessing
+- profession
+- professor
+- ==questionnaire==
+- ==possibility==
+- opportunities
+- ==robber==
+- ==otter==
+- rubbish
+- Russia
+- school
+- kangaroo
+- ==Scottish==
+- ==screen==
+- seafood
+- ==settlement==
+- ==shuttle==
+- shopping
+- swimming
+- skiing
+- setting
+- ==steel==
+- ==steering==
+- stress
+- stressful
+- stiff
+- staff
+- stuff
+- cliff
+- success
+- successful
+- ==session==
+- ==concession==
+- ==summary==
+- ==summer==
+- summit
+- ==supplementary==
+- ==supply==
+- support
+- supportive
+- tennis
+- tunnel
+- ==toothache==
+- traffic
+- ==terraced==
+- ==terrestrial==
+- ==vaccine==
+- ==vacuum==
+- ==waitress==
+- ==willow==
+- weed
+- wood
+- woods
+- zoo
