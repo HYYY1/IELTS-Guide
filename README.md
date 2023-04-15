@@ -15,7 +15,7 @@
 - 微软爱写作，练习写作
 - 英语流利说app，练习口语
 - 流利说雅思app，练习题库加录音提升
-- http://ask.questo.chat/，AI问答老师，在线提升。
+- http://ask.questo.chat/ AI问答老师，在线提升。
 
 ## 听力
 
